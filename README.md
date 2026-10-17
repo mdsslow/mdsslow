@@ -6,7 +6,7 @@
 
 ---
 
-## 🌐 Where to find me
+## 🌐 Onde me encontrar
 
 <p align="left">
   <a href="https://github.com/herbertcarnaubadesouza">

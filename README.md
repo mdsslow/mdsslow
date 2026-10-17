@@ -1,4 +1,4 @@
-# Olá 👋, Me chamo Moisés Santos
+# Olá 👋, Me chamo Moisés
 
 🚀 **Apenas um iniciante curioso**  
 🇧🇷 Brazil
